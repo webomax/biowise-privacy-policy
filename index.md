@@ -1,4 +1,3 @@
-# Privacy Policy
 
 **Effective Date:** March 2, 2026
 
